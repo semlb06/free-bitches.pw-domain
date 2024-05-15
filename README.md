@@ -22,6 +22,7 @@ Get free lifetime access to get your own bitches.pw domain like **`bitches.pw/se
 I as a developer and of course the community will help you on your way until you have successfully registered a domain URL!
 
 Enter the Discord-server via [bitches.pw/discord](https://bitches.pw/discord)!
+
 [![Discord](https://img.shields.io/discord/882318291014651924.svg?logo=discord)](https://discord.gg/GYN8gEsATP)
 
 ### 🌐 Official links
