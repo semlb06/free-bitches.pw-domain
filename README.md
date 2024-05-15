@@ -3,7 +3,7 @@
 Get free lifetime access to get your own bitches.pw domain like **`bitches.pw/semlb`** :)
 
 
-## 🚀 Getting Started
+### 🚀 Getting Started
 
 - **Step one:** Join the [Bitches.PW Discord support server](https://bitches.pw/discord)! 
 - **Step two:** Read the next channel __`#information`__. If you agree, you can proceed to step three.
